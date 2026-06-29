@@ -78,4 +78,4 @@ baitap-code-AI/
 
 ---
 
-*Cảm ơn Thầy/Cô đã xem xét đồ án môn học này!*
+*Cảm ơn Cô đã xem xét đồ án môn học này!*
